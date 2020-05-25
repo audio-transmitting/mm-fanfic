@@ -3,7 +3,7 @@ Archive of Our Own betaArchive of Our OwnUser NavigationHi, Audio_Transmitting!P
 
 Site NavigationFandomsBrowseSearchAboutSearch Works
 Work Search:  
- tip: lex m/m (mature OR explicit)
+ tip: austen words:10000-50000 sort:title
  
 Skip header
 Actions
