@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c673edad<br/>
+<br/>
 <br/>
 【Mystic Messenger|授翻|707×MC】时序错误<br/>
 # 第二人称视角 SE2 7MC小甜饼一发完 # 原文<Sequence Error> by crytalstellar. 地址：https://archiveofourown.org/works/7928746 # 授权：https://archiveofourown.org/works/7928746/comments/244497616 # 渣翻大意，恳请轻拍 ——<br/>
@@ -136,4 +138,3 @@ Saeyoung看着你，表情混合着狂喜和迟疑，也许还有许多你说不
 36<br/>
 #Mystic messenger<br/>
 #707<br/>
-< 上一篇<br/>

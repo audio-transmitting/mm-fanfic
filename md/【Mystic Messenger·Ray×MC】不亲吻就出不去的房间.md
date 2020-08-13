@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c812f57c<br/>
+<br/>
 <br/>
 【Mystic Messenger|Ray×MC】不亲吻就出不去的房间<br/>
 #与@虫好累 太太的一次聊天记录整理，很有趣的思路。<br/>
@@ -27,4 +29,3 @@
 3<br/>
 20<br/>
 #Mystic messenger<br/>
-< 上一篇<br/>

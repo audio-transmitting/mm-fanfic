@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c6a19770<br/>
+<br/>
 <br/>
 【Mystic Messenger|Ray】呼叫无应答<br/>
 # Another Story Day4 好感度BE # Ray 视角独白 ——<br/>
@@ -60,4 +62,3 @@ Ray敲开了门。<br/>
 32<br/>
 #Mystic messenger<br/>
 #Saeran<br/>
-< 上一篇<br/>

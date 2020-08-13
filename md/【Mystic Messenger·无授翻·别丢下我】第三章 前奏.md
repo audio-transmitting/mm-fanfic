@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c7065f9e<br/>
+<br/>
 <br/>
 【Mystic Messenger|无授翻|别丢下我】第三章 前奏<br/>
 夜晚的花园一如既往地宁静。但你的身边不再是Ray，而是救世主——他的救世主。你知道她了。如果整个RFA都是真人，那她一定就是那个人吧...<br/>
@@ -90,4 +92,3 @@ Ray在做什么？<br/>
 2019-11-15<br/>
 22<br/>
 #Mystic messenger<br/>
-< 上一篇<br/>

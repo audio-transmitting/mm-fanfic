@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c8b3902e<br/>
+<br/>
 <br/>
 【Mystic Messenger|Ray】伏笔<br/>
 # another story 前传, Ray独白<br/>
@@ -33,4 +35,3 @@ MC一定会爱他的。<br/>
 2<br/>
 25<br/>
 #Mystic messenger<br/>
-< 上一篇<br/>

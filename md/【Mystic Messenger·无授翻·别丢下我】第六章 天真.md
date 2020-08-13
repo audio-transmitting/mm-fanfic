@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c70ddcb5<br/>
+<br/>
 <br/>
 【Mystic Messenger|无授翻|别丢下我】第六章 天真<br/>
 电脑散热扇嗡嗡地响着，隔着墙都能听见它不堪重负的声音。<br/>
@@ -97,4 +99,3 @@ Vanderwood停了下来，你瞄了他一眼，打火机的微光映在他手掌�
 2019-11-19<br/>
 21<br/>
 #Mystic messenger<br/>
-< 上一篇<br/>

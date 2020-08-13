@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c6b09fa4<br/>
+<br/>
 <br/>
 【Mystic Messenger|Saeran×MC】高兴<br/>
 #Ray线Day8/9 #黑兰扎心警告 ——<br/>
@@ -50,4 +52,3 @@ Saeran一把推开MC摔门而去。<br/>
 29<br/>
 #Mystic messenger<br/>
 #Saeran<br/>
-< 上一篇<br/>

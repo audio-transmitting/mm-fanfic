@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c6c69f66<br/>
+<br/>
 <br/>
 【Mystic Messenger】别闹<br/>
 # Ray线GE后日谈小甜饼 ——<br/>
@@ -86,4 +88,3 @@ Saeran闭着眼睛，又圈紧了一些，迷瞪瞪地道：“别闹。”<br/>
 2<br/>
 42<br/>
 #Mystic messenger<br/>
-< 上一篇<br/>

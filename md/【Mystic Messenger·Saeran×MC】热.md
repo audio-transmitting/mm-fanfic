@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c99cedc8<br/>
+<br/>
 <br/>
 【Mystic Messenger|Saeran×MC】热<br/>
 #20年生贺，Ray线GE后日谈<br/>
@@ -34,4 +36,3 @@ MC开心地抱着他的单边手臂：“要！但不发给他们，我自己看
 6<br/>
 34<br/>
 #Mystic messenger<br/>
-< 上一篇<br/>

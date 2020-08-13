@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c70ae631<br/>
+<br/>
 <br/>
 【Mystic Messenger|无授翻|别丢下我】第四章 背誓<br/>
 看着RFA忙忙碌碌地做营救计划的感觉很微妙——Ray能在后台清清楚楚地看到每一个字。所以当你给RFA提供情报，给他们加油鼓劲的时候，Ray会觉得你只是在按他和Rika的意思行事，还是会觉得...你是个叛徒？<br/>
@@ -112,4 +114,3 @@ Ray...<br/>
 2019-11-17<br/>
 20<br/>
 #Mystic messenger<br/>
-< 上一篇<br/>

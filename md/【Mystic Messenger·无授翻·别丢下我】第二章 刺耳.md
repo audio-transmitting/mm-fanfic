@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c7065c35<br/>
+<br/>
 <br/>
 【Mystic Messenger|无授翻|别丢下我】第二章 刺耳<br/>
 手机屏幕上的头像已经闪得够久了...Ray，你在哪儿？和所谓的救世主聊过之后，你更加确信——Ray是被利用了。<br/>
@@ -59,4 +61,3 @@ Ray：“哦，哈，别在意，刚刚说错话了。我应该开心才对。�
 2019-11-15<br/>
 23<br/>
 #Mystic messenger<br/>
-< 上一篇<br/>

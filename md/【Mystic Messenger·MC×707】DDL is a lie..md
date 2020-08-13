@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c6c07f53<br/>
+<br/>
 <br/>
 【Mystic Messenger|MC*707】DDL is a lie.<br/>
 # but you love it XD # 继续小甜饼 ━=͟͟͞͞ ★★★☆☆☆★★★口ω口)_<br/>
@@ -82,4 +84,3 @@ Saeyoung哼唧了一声，抱紧了怀里的躯体，不让MC松开。他不知�
 22<br/>
 #Mystic messenger<br/>
 #707<br/>
-< 上一篇<br/>

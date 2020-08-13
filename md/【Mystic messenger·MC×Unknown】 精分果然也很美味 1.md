@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_12ddffe69<br/>
+<br/>
 <br/>
 【Mystic messenger|MC×Unknown】 精分果然也很美味 1<br/>
 ''' ReadMe:      文中设定为情节需要。如果遇到可疑的人物，团体或事件，请参见某个AS ending报警并立即离开，不要在现场逗留。遇到想睡的对象，也请先征得对方同意。不得使用包括但不限于用同人本里提过的手段，引诱、威胁或强迫对方。<br/>
@@ -55,4 +57,3 @@ Let's start party.<br/>
 7<br/>
 64<br/>
 #Mystic messenger<br/>
-< 上一篇<br/>

@@ -1,3 +1,5 @@
+https://a602e23.lofter.com/post/1ed9d412_1c5c656ac<br/>
+<br/>
 <br/>
 【Mystic messenger|707】怦然心动<br/>
 # 独白<br/>
@@ -17,4 +19,3 @@
 2019-05-21<br/>
 15<br/>
 #707<br/>
-< 上一篇<br/>
